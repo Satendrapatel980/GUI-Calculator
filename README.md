@@ -1,2 +1,0 @@
-# Satendra-Patel
-Satendra Coursera
